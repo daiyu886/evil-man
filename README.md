@@ -27,6 +27,8 @@
 [温州14岁女生看了一眼少年纹身，被打耳膜穿孔流血](https://weibo.com/tv/v/HAHTlAQBT?fid=1034:4387484902085991)<br>
 [山东初三女孩在家中被父亲杀害，母亲亦被家暴16年](http://n.miaopai.com/media/DAAVgnWNvMJ4J7qOlY7ymNahdbOv2QH~)<br>
 [深圳15岁少女拒绝男子求爱遭毁容](https://baijiahao.baidu.com/s?id=1632868571879333887&wfr=spider&for=pc)<br>
+[16岁少女在昌平新东方外国语学校601教室遭17岁的王祎哲强奸并勒死](https://baijiahao.baidu.com/s?id=1597462605925601496&wfr=spider&for=pc)<br>
+[湖南16岁少女被50岁单身男囚禁地洞性侵24天](http://m.haiwainet.cn/middle/3541353/2016/0908/content_30305627_1.html)<br>
 
 ### 18岁以上
 [西安某男子对3名服务员实施猥亵，被行政拘留10日](https://weibo.com/tv/v/HCuNV29qJ?fid=1034:4391748403662459)<br>
@@ -41,7 +43,8 @@
 [南昌红谷滩伤人案](https://baike.baidu.com/item/5%C2%B724%E5%8D%97%E6%98%8C%E7%BA%A2%E8%B0%B7%E6%BB%A9%E4%BC%A4%E4%BA%BA%E6%A1%88/23520161)<br>
 [广东梅州一中学内20岁男子捅死18岁女生](https://baijiahao.baidu.com/s?id=1622425316899387037&wfr=spider&for=pc)<br>
 [湖南祁东县疑多人强奸未成年女孩 两公职人员涉案](http://www.sohu.com/a/354532305_260616)<br>
-
+[河南“女大学生遭性侵毁尸案”](http://www.bjnews.com.cn/news/2019/08/23/618720.html)<br>
+[武汉一花季女大学生被性侵 作案者竟是闺蜜男友](https://hb.qq.com/a/20171122/007253.htm)<br>
 
 ### 甜甜的恋爱轮到你了
 [合肥女钢琴师被相亲对象杀害](http://www.sohu.com/a/304549647_120067027)<br>
@@ -75,8 +78,10 @@
 [贵州省贵阳中加新世界国际学校（民办）教师刘某某因涉嫌猥亵儿童罪被检察院批准逮捕](https://baijiahao.baidu.com/s?id=1638207251240547269&wfr=spider&for=pc)<br>
 [辽宁葫芦岛高台镇水口小学校长涉嫌性侵多名小学女生被刑拘](http://www.mnw.cn/edu/news/2174844.html)<br>
 [安徽省六安市轻工中学（民办）从教人员袁某涉嫌猥亵儿童罪被依法刑事拘留](http://bbs.luanren.com/thread-6213171-1-2.html?_dsign=ad143140)<br>
+[东莞理工大学命案一名女学生在女厕遇害，凶手为大四学生](http://gaokao.gaofen.com/article/148878.htm)<br>
 
 ### 与金钱地位无关 
+[央视主持人朱军被爆性侵女大学生](http://m.kdnet.net/share-12880247.html)<br>
 [陈思诚拿烟头烫佟丽娅](http://www.sohu.com/a/124849073_600636)<br>
 [蒋劲夫家暴日本女友](https://baijiahao.baidu.com/s?id=1617703128972051579&wfr=spider&for=pc)<br>
 [蒋劲夫被外籍女友再次曝光家暴](https://new.qq.com/rain/a/20191127A00J94)<br>
@@ -91,6 +96,9 @@
 [黄锦燊家暴赵雅芝,丑闻满天飞](http://dy.163.com/v2/article/detail/DM40CASV0517NCC3.html)<br>
 [张默殴打女友童谣，导致“鼻外伤，鼻骨骨折。”“皮下层出血，右眼视力 0.6](http://bbs.tianya.cn/post-no04-1112756-1.shtml)<br>
 ["疯狂英语"李阳家暴案](http://jczy.chinacourt.gov.cn/article/detail/2018/12/id/3611691.shtml)<br>
+[迁安市公安局党委副书记康永、迁安市人大代表王双等性侵案](https://baijiahao.baidu.com/s?id=1652493592967553221&wfr=spider&for=pc)<br>
+[海航飞行员涉嫌性侵香港女导演：从18楼爬到房间 ](http://www.sohu.com/a/243216365_629770)<br>
+[知名公益人雷闯涉性侵女志愿者](https://baijiahao.baidu.com/s?id=1606829545679897262&wfr=spider&for=pc)<br>
 
 ### 性骚扰
 [广西男子公交性骚扰被发现，掏刀恐吓被行拘15日](http://n.miaopai.com/media/LxKJlAiiw6k19G7RwVsuOiTnJ~XVCT-f)<br>
@@ -99,12 +107,54 @@
 
 ### 与职业头衔无关  高校教授
 [四川师范熊清泉性骚扰学生](https://www.sohu.com/a/313212834_99975948)<br>
+[成都理工大学致公党副主委刘建同志性骚扰女生](https://www.douban.com/group/topic/109693494/)<br>
 [北大数学中心博导冯仁杰劈腿数十人，插足本科生、出轨已婚女](https://new.qq.com/omn/20191203/20191203A07PL900)<br>
+[北大教授谢灿性骚扰](http://www.wsic.ac.cn/academicnews/90309.htm)<br>
+[北大副教授余万里性侵女学生](https://www.6tj.com/news/20141123/33828.html)<br>
+[原北大教师沈阳被指“性侵女生致其自杀”](http://baijiahao.baidu.com/s?id=1597084004729456499&wfr=spider&for=pc)<br>
 [上财副教授被曝性侵女学生](https://baijiahao.baidu.com/s?id=1652250388367919503&wfr=spider&for=pc)<br>
-[南昌大学国学院副院长周斌长期猥亵、性侵女学生,院长包庇,2天后又1女生称被性侵](http://www.sohu.com/a/212484183_617033)<br>
-[女博士举报北航教授性骚扰 疑似曾致手下学生怀孕](https://baijiahao.baidu.com/s?id=1588393788098075450&wfr=spider&for=pc)<br>
+[江西南昌大学国学院副院长周斌长期猥亵、性侵女学生,院长包庇,2天后又1女生称被性侵](http://www.sohu.com/a/212484183_617033)<br>
+[江西赣州一高等专科书法教师陈锡明性侵女生](https://baijiahao.baidu.com/s?id=1647201722917430396&wfr=spider&for=pc)<br>
+[女博士举报北航教授陈小武性骚扰 疑似曾致手下学生怀孕](https://baijiahao.baidu.com/s?id=1588393788098075450&wfr=spider&for=pc)<br>
 [中山大学南方学院一教师被指强奸女学生 校方通报：已刑拘](https://baijiahao.baidu.com/s?id=1647430416723484611&wfr=spider&for=pc)<br>
 [中山大学人类学系教授张鹏性侵](https://baijiahao.baidu.com/s?id=1605865685944551050&wfr=spider&for=pc)<br>
+[宁波大学副教授性骚扰女生](http://news.sina.com.cn/o/2019-12-12/doc-iihnzahi7088469.shtml)<br>
+[对外经贸大学薛原教授被举报长期猥亵及性骚扰](http://news.hexun.com/2018-01-12/192220882.html)<br>
+[广西财经学院教师容治教室索抱女学生](https://www.tianyancha.com/lawsuit/e34069971cbb11e6b554008cfae40dc0)<br>
+[河南大学文学院教授肖开愚性侵、性骚扰学生](https://www.sohu.com/a/230490354_100117601)<br>
+[厦门大学博导吴春明性侵案](https://fj.qq.com/a/20141020/035626.htm)<br>
+[四川美术学院副教授王小箭餐厅强抱吻女生被处分](http://hn.ifeng.com/jiaoyu/jiaoyuyaowen/detail_2014_10/13/3006084_0.shtml)<br>
+[北京电影学院某班主任的父亲性侵班内女生,宋靖、吴毅为首的教授们多次潜规则女大学生，常年贪污受贿](https://baijiahao.baidu.com/s?id=1569714741570738&wfr=spider&for=pc)<br>
+[上海交大副院长谢耘耕因涉性骚扰被撤职](https://www.douban.com/group/topic/116318384/)<br>
+[上海海事大学解聘外语学院副院长蒋林性侵女生](http://www.sohu.com/a/74420046_260616)<br>
+[南京师范大学教授刘军性骚扰女性，并发来对话截图，截图中的文字内容不堪入目](http://www.sohu.com/a/116014719_119038)<br>
+[北京联合大学老师“袭胸”女学生](http://news.sohu.com/20160511/n448912005.shtml)<br>
+[华北电力大学可再生能源学院院长戴松元，被曝性侵女教师](https://baijiahao.baidu.com/s?id=1629291004248010943&wfr=spider&for=pc)<br>
+[巢湖学院学生处处长赵尚松，用毕业证威胁女学生](http://www.jjrmyy.com/dangjiangongzuo/270478.html)<br>
+[北京师范大学博导施雪华性侵女生](https://www.douban.com/group/topic/111985676/)<br>
+[北京师范大学长江学者刑法泰斗赵秉志因作风问题不再任院长](https://www.douban.com/group/topic/120908707/)<br>
+[中国传媒大学谢伦灿教授性侵女生](http://www.sohu.com/a/243560946_454708)<br>
+[山东临沂大学文学院教师郑明璋长期骚扰女学生](http://www.sohu.com/a/238587159_111292)<br>
+[山东中医药大学研究生导师梁栋被爆性侵](https://baijiahao.baidu.com/s?id=1608574411048159526&wfr=spider&for=pc)<br>
+[山东建筑大学副教授赵全斌出轨该校女毕业生并诱导该女生与其发生关系](http://think.szonline.net/rjgc/20190116/20190137935.html)<br>
+[福建华侨大学副教授瞿辉性侵女大学生：骗老婆说女生是小三](https://baijiahao.baidu.com/s?id=1614098400690832940&wfr=spider&for=pc)<br>
+[中国人民大学中文系副教授王以培性侵女学生被撤职](http://www.szhgh.com/Article/wsds/youth/2018-04-30/168764.html)<br>
+[中国人民大学校友举报长江学者张康之性骚扰](http://china.caixin.com/2018-04-14/101234511.html)<br>
+[中国人民大学顾海兵教授性骚扰女生](http://www.duyan.com.cn/zixun/kaoyanxinxi/8450-101607.html?open_source=weibo_search)<br>
+[中国传媒大学副校长蔡翔泡温泉时性侵女学生](https://baijiahao.baidu.com/s?id=1637562940552733157&wfr=spider&for=pc)<br>
+[西安思源学院副教授黄某性侵](http://www.sohu.com/a/226439434_105096)<br>
+[天津财经大学珠江学院教师李冬杰性骚扰女生](https://baijiahao.baidu.com/s?id=1635366698597045915&wfr=spider&for=pc)<br>
+[天津工业大学殷姓男教师殷勤骚扰女学生 不雅聊天内容曝光](http://www.mnw.cn/news/shehui/929633.html)<br>
+[扬大老师骚扰女学生](http://think.szonline.net/hsbd/20190401/20190447614.html)<br>
+[澳门大学研究生院院长莫世健涉嫌性侵外校学生](http://news.sina.com.cn/o/2018-06-29/doc-iheqpwqy8831436.shtml)<br>
+[河北传媒学院影视艺术学院教师张天翔威胁、骚扰猥亵女学生](http://www.yidianzixun.com/article/0I3eAjkO)<br>
+[江西副校长刘小飞女厕偷拍,急辩：我承认走错了 ](https://www.sohu.com/a/278351346_699962)<br>
+[中南大学张向真涉嫌性侵学生致怀孕](https://baijiahao.baidu.com/s?id=1647599047256417893&wfr=spider&for=pc)<br>
+[中南大学教师陈明性骚扰多名女生 ](http://www.sohu.com/a/221516491_713446)<br>
+[湖南大学经贸学院熊伟副教授性骚扰女生](http://www.sohu.com/a/250046169_390667)<br>
+[西北大学新闻传播学院讲师张晓性骚扰女生](https://www.sohu.com/a/244054118_100233994)<br>
+[吉林农业科技学院王东来老师灌酒摸胸性骚扰女生](http://www.sohu.com/a/270228793_420849)<br>
+[电子科技大学通信学院张翼德老师对多名女学生性骚扰](http://tieba.baidu.com/p/5204813523)<br>
 
 ### 男权心里话
 ```
@@ -145,6 +195,7 @@
 [广东男子强奸12岁女儿 称自己的孩子想玩玩](http://legal.people.com.cn/n/2014/1223/c188502-26262369.html)<br>
 [四川男子多次性侵9岁聋哑女儿 获刑11年并被撤销监护权](http://baijiahao.baidu.com/s?id=1652061782607097681&wfr=spider&for=pc)<br>
 [山东一男子强奸亲生女儿获刑七年六个月，被撤销监护人资格](https://www.thepaper.cn/newsDetail_forward_2917243)<br>
+[浙江绍兴一四川男子性侵养女案](https://baike.baidu.com/item/%E5%85%BB%E7%88%B6%E6%80%A7%E4%BE%B5%E5%A5%B3%E5%84%BF%E6%A1%88/6345246)<br>
 
 ### 偷拍 - 法律是不保护女性的  
 2015年7月，[陕西男子商场偷拍罚款500](https://xian.qq.com/a/20150719/009708.htm)<br>
