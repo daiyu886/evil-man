@@ -1,6 +1,7 @@
 # Evil Man - 中国男性之恶
 ## 简介
-收录了近期所有的性别暴力事件新闻，包含0-18岁以上女性遭受的暴力事件、性骚扰专题、婚女专题持续更新，详情展开全部<br>
+收录了近期所有的性别暴力事件新闻，包含0-18岁及以上女性遭受的暴力事件、性骚扰专题、婚女专题。持续更新，详情展开全部<br>
+
 ### 0-3岁
 [福建政和6个月女婴被性侵，嫌犯获刑五年](http://mn.sina.com.cn/news/s/2015-05-22/detail-iawzuney5987978.shtml?qq-pf-to=pcqq.c2c)<br>
 [宁波16个月大女婴被五旬男子性侵](http://m.sohu.com/a/136385366_612707/)<br>
@@ -11,6 +12,7 @@
 [甘肃6岁女孩遭13岁男孩侵犯，不予立案](http://dy.163.com/v2/article/detail/EBEJ878605490OID.html)<br>
 [杭州6岁女孩被拍不雅照，影楼：不排除小孩想红](https://zx.sina.cn/2019-12-10/zx-iihnzahi6464282.d.html)<br>
 [福州一家影院的公厕内三名女子接连被猥亵，最小的只有6岁](http://n.miaopai.com/media/w85Ja4JqwSPWC0BqrJudoElPmXtMFibS)<br>
+[“红黄蓝幼儿园教师猥亵女童案”](http://news.qingdaonews.com/qingdao/2019-12/06/content_20967026.htm)<br>
 
 ### 7-17岁
 [河南一武校教练课堂上强暴9岁女生 让其他男生面朝电视](http://news.sina.com.cn/s/pa/2016-02-26/doc-ifxpvysx1664006.shtml)<br>
@@ -25,7 +27,6 @@
 [温州14岁女生看了一眼少年纹身，被打耳膜穿孔流血](https://weibo.com/tv/v/HAHTlAQBT?fid=1034:4387484902085991)<br>
 [山东初三女孩在家中被父亲杀害，母亲亦被家暴16年](http://n.miaopai.com/media/DAAVgnWNvMJ4J7qOlY7ymNahdbOv2QH~)<br>
 [深圳15岁少女拒绝男子求爱遭毁容](https://baijiahao.baidu.com/s?id=1632868571879333887&wfr=spider&for=pc)<br>
-
 
 ### 18岁以上
 [西安某男子对3名服务员实施猥亵，被行政拘留10日](https://weibo.com/tv/v/HCuNV29qJ?fid=1034:4391748403662459)<br>
@@ -64,6 +65,47 @@
 [女子不愿回前男友老家被强行拖上车,警察猛追4小时后获救](http://n.miaopai.com/media/NgzID-8zg9Jys6zCfLpOUPeuDTCi42oH)<br>
 [男子驾车拐弯剐蹭路边女友，随后将其撞倒后驾车碾压](https://www.56.com/u53/v_MTUwNjk1NTU0.html)<br>
 
+### 与学历无关
+[不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://new.qq.com/sv1/qd/aoyou.html?cmsid=20191212A091IE00)<br>
+[大连一研究生出轨后，将妻儿掐死，被判无期](http://news.sina.com.cn/s/2018-10-02/doc-ihkvrhps0680457.shtml)<br>
+[北大吴谢宇弑母案](http://news.chinaxiaokang.com/shehuipindao/fazhi/20191204/854303.html)<br>
+[清华法律硕士男子商场偷拍，行政拘留7日](http://m.sohu.com/a/318182186_355832)<br>
+[宁夏博物馆研究员杀妻分尸](https://baijiahao.baidu.com/s?id=1622347467847141868&wfr=spider&for=pc)<br>
+[太原某校校长出轨，杀害怀胎4月的妻子并烧车焚尸](https://new.qq.com/omn/20181216/20181216A0JAZR.html?pc)<br>
+[贵州省贵阳中加新世界国际学校（民办）教师刘某某因涉嫌猥亵儿童罪被检察院批准逮捕](https://baijiahao.baidu.com/s?id=1638207251240547269&wfr=spider&for=pc)<br>
+[辽宁葫芦岛高台镇水口小学校长涉嫌性侵多名小学女生被刑拘](http://www.mnw.cn/edu/news/2174844.html)<br>
+[安徽省六安市轻工中学（民办）从教人员袁某涉嫌猥亵儿童罪被依法刑事拘留](http://bbs.luanren.com/thread-6213171-1-2.html?_dsign=ad143140)<br>
+
+### 与金钱地位无关 
+[陈思诚拿烟头烫佟丽娅](http://www.sohu.com/a/124849073_600636)<br>
+[蒋劲夫家暴日本女友](https://baijiahao.baidu.com/s?id=1617703128972051579&wfr=spider&for=pc)<br>
+[蒋劲夫被外籍女友再次曝光家暴](https://new.qq.com/rain/a/20191127A00J94)<br>
+[35岁香港男星周永恒被拘捕，自认渣男家暴前妻](https://new.qq.com/rain/a/20191211A0CAFR00)<br>
+[明日之子学员张嫮目家暴张三弥，掰断手指、拍下私密照、打到尿失禁](http://www.sohu.com/a/339648678_720640)<br>
+[黄景瑜家暴事件再添猛料，网友围观吃瓜不断](https://www.sohu.com/a/315443556_100157691)<br>
+[网红金元宝的猪爆许凯家暴](https://www.douban.com/group/topic/112958736/)<br>
+[刘洲成家暴事件始末](http://www.sohu.com/a/164307730_99965976)<br>
+[于震家暴使妻子流产](https://baijiahao.baidu.com/s?id=1573590022154614&wfr=spider&for=pc)<br>
+[马景涛两次离婚系与家暴有关](http://ent.zdface.com/mxzp/dsj/2018-03-13/594826.shtml)<br>
+[崔建邦殴打女友邝敏慧](http://yule.sohu.com/20091228/n269258456.shtml)<br>
+[黄锦燊家暴赵雅芝,丑闻满天飞](http://dy.163.com/v2/article/detail/DM40CASV0517NCC3.html)<br>
+[张默殴打女友童谣，导致“鼻外伤，鼻骨骨折。”“皮下层出血，右眼视力 0.6](http://bbs.tianya.cn/post-no04-1112756-1.shtml)<br>
+["疯狂英语"李阳家暴案](http://jczy.chinacourt.gov.cn/article/detail/2018/12/id/3611691.shtml)<br>
+
+### 性骚扰
+[广西男子公交性骚扰被发现，掏刀恐吓被行拘15日](http://n.miaopai.com/media/LxKJlAiiw6k19G7RwVsuOiTnJ~XVCT-f)<br>
+[南京女医生遭男子两次摸臀猥亵，被抓时：不就摸一下，还能坐牢吗](http://baijiahao.baidu.com/s?id=1650325489184111569&wfr=spider&for=pc)<br>
+[江西抚州多名女子公交车上遭遇变态“咸猪手”](https://zj.zjol.com.cn/video.html?id=1259461)<br>
+
+### 与职业头衔无关  高校教授
+[四川师范熊清泉性骚扰学生](https://www.sohu.com/a/313212834_99975948)<br>
+[北大数学中心博导冯仁杰劈腿数十人，插足本科生、出轨已婚女](https://new.qq.com/omn/20191203/20191203A07PL900)<br>
+[上财副教授被曝性侵女学生](https://baijiahao.baidu.com/s?id=1652250388367919503&wfr=spider&for=pc)<br>
+[南昌大学国学院副院长周斌长期猥亵、性侵女学生,院长包庇,2天后又1女生称被性侵](http://www.sohu.com/a/212484183_617033)<br>
+[女博士举报北航教授性骚扰 疑似曾致手下学生怀孕](https://baijiahao.baidu.com/s?id=1588393788098075450&wfr=spider&for=pc)<br>
+[中山大学南方学院一教师被指强奸女学生 校方通报：已刑拘](https://baijiahao.baidu.com/s?id=1647430416723484611&wfr=spider&for=pc)<br>
+[中山大学人类学系教授张鹏性侵](https://baijiahao.baidu.com/s?id=1605865685944551050&wfr=spider&for=pc)<br>
+
 ### 男权心里话
 ```
 我又没打别人 我打的是我老婆 持结婚证杀人又不死刑
@@ -90,7 +132,6 @@
 [男子因被妻子屏蔽朋友圈,持刀挟持妻子砍伤侄女](http://n.miaopai.com/media/fsAsun8G2~xo19nCF1XMAwT13HofI7OG)<br>
 [离婚次日男子砍前妻后自首](http://n.miaopai.com/media/tbjxt349s2-eSa2ui5cvPiHIGXO266yb)<br>
 
-
 ```
 我又没杀别人 我杀的是我亲妈
 ```
@@ -115,19 +156,6 @@
 2018年10月，[安徽男子厕所偷拍，行政拘留10日](http://ah.ifeng.com/a/20191127/7888026_0.shtml)<br>
 2019年5月，[北京小米副总裁猥亵，行政拘留5日](http://www.sohu.com/a/316656109_166914)<br>
 2019年6月，[四川男子地铁偷拍，行政处罚7日，罚款500](https://news.china.com/socialgd/10000169/20190530/36295437.html)<br>
-
-### 性骚扰-关几天洒洒水啦
-[广西男子公交性骚扰被发现，掏刀恐吓被行拘15日](http://n.miaopai.com/media/LxKJlAiiw6k19G7RwVsuOiTnJ~XVCT-f)<br>
-[南京女医生遭男子两次摸臀猥亵，被抓时：不就摸一下，还能坐牢吗](http://baijiahao.baidu.com/s?id=1650325489184111569&wfr=spider&for=pc)<br>
-[江西抚州多名女子公交车上遭遇变态“咸猪手”](https://zj.zjol.com.cn/video.html?id=1259461)<br>
-
-### 与学历无关
-[不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://new.qq.com/sv1/qd/aoyou.html?cmsid=20191212A091IE00)<br>
-[大连一研究生出轨后，将妻儿掐死，被判无期](http://news.sina.com.cn/s/2018-10-02/doc-ihkvrhps0680457.shtml)<br>
-[北大吴谢宇弑母案](http://news.chinaxiaokang.com/shehuipindao/fazhi/20191204/854303.html)<br>
-[清华法律硕士男子商场偷拍，行政拘留7日](http://m.sohu.com/a/318182186_355832)<br>
-[宁夏博物馆研究员杀妻分尸](https://baijiahao.baidu.com/s?id=1622347467847141868&wfr=spider&for=pc)<br>
-[太原某校校长出轨，杀害怀胎4月的妻子并烧车焚尸](https://new.qq.com/omn/20181216/20181216A0JAZR.html?pc)<br>
 
 
 ## 结语 
