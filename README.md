@@ -1,10 +1,6 @@
 # Evil Man - 中国男性之恶
 ## 简介
-收录了近期所有的性别暴力事件新闻，包含PUA专题、0-18岁以上女性遭受的暴力事件、性骚扰专题、婚女专题持续更新，详情展开全部<br>
-
-### PUA专题
-[不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://new.qq.com/sv1/qd/aoyou.html?cmsid=20191212A091IE00)<br>
-
+收录了近期所有的性别暴力事件新闻，包含0-18岁以上女性遭受的暴力事件、性骚扰专题、婚女专题持续更新，详情展开全部<br>
 ### 0-3岁
 [福建政和6个月女婴被性侵，嫌犯获刑五年](http://mn.sina.com.cn/news/s/2015-05-22/detail-iawzuney5987978.shtml?qq-pf-to=pcqq.c2c)<br>
 [宁波16个月大女婴被五旬男子性侵](http://m.sohu.com/a/136385366_612707/)<br>
@@ -126,6 +122,7 @@
 [江西抚州多名女子公交车上遭遇变态“咸猪手”](https://zj.zjol.com.cn/video.html?id=1259461)<br>
 
 ### 与学历无关
+[不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://new.qq.com/sv1/qd/aoyou.html?cmsid=20191212A091IE00)<br>
 [大连一研究生出轨后，将妻儿掐死，被判无期](http://news.sina.com.cn/s/2018-10-02/doc-ihkvrhps0680457.shtml)<br>
 [北大吴谢宇弑母案](http://news.chinaxiaokang.com/shehuipindao/fazhi/20191204/854303.html)<br>
 [清华法律硕士男子商场偷拍，行政拘留7日](http://m.sohu.com/a/318182186_355832)<br>
