@@ -1,8 +1,10 @@
 # Evil Man - 中国男性之恶
 ## 简介
-收录了近期所有的性别暴力事件新闻，持续更新，详情展开全部<br>
+收录了近期所有的性别暴力事件新闻，包含PUA专题、0-18岁以上女性遭受的暴力事件、性骚扰专题、婚女专题持续更新，详情展开全部<br>
 
-## 目录
+### PUA专题
+[不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://new.qq.com/sv1/qd/aoyou.html?cmsid=20191212A091IE00)<br>
+
 ### 0-3岁
 [福建政和6个月女婴被性侵，嫌犯获刑五年](http://mn.sina.com.cn/news/s/2015-05-22/detail-iawzuney5987978.shtml?qq-pf-to=pcqq.c2c)<br>
 [宁波16个月大女婴被五旬男子性侵](http://m.sohu.com/a/136385366_612707/)<br>
@@ -41,6 +43,8 @@
 [成都仨老头疑公交上袭臀女孩 小伙出言喝止反被打成脑震荡](http://n.miaopai.com/media/mLZR19jE9YkpemWvQJLNbW3vEFjoXjxz)<br>
 [南昌红谷滩伤人案](https://baike.baidu.com/item/5%C2%B724%E5%8D%97%E6%98%8C%E7%BA%A2%E8%B0%B7%E6%BB%A9%E4%BC%A4%E4%BA%BA%E6%A1%88/23520161)<br>
 [广东梅州一中学内20岁男子捅死18岁女生](https://baijiahao.baidu.com/s?id=1622425316899387037&wfr=spider&for=pc)<br>
+[湖南祁东县疑多人强奸未成年女孩 两公职人员涉案](http://www.sohu.com/a/354532305_260616)<br>
+
 
 ### 甜甜的恋爱轮到你了
 [合肥女钢琴师被相亲对象杀害](http://www.sohu.com/a/304549647_120067027)<br>
@@ -87,6 +91,10 @@
 [汕头龙湖区男子残忍杀死妻子后将尸体肢解烹煮](http://www.mnw.cn/news/shehui/813334.html)<br>
 [汕头一男子挟持妻子做人质欲跳楼被警方击毙](https://baijiahao.baidu.com/s?id=1619557794639582849&wfr=spider&for=pc)<br>
 [砍妻头部超30刀 山西晋城兰亭书院案凶手被判死刑](https://baijiahao.baidu.com/s?id=1635947033411473401&wfr=spider&for=pc)<br>
+[男子因被妻子屏蔽朋友圈,持刀挟持妻子砍伤侄女](http://n.miaopai.com/media/fsAsun8G2~xo19nCF1XMAwT13HofI7OG)<br>
+[离婚次日男子砍前妻后自首](http://n.miaopai.com/media/tbjxt349s2-eSa2ui5cvPiHIGXO266yb)<br>
+
+
 ```
 我又没杀别人 我杀的是我亲妈
 ```
