@@ -6,6 +6,7 @@
 [福建政和6个月女婴被性侵，嫌犯获刑五年](http://mn.sina.com.cn/news/s/2015-05-22/detail-iawzuney5987978.shtml?qq-pf-to=pcqq.c2c)<br>
 [宁波16个月大女婴被五旬男子性侵](http://m.sohu.com/a/136385366_612707/)<br>
 [南宁3岁女童处女膜破裂称被老师打屁股 幼儿园监控缺失](https://app.peopleapp.com/Api/600/DetailApi/shareArticle?type=0&article_id=2274001&from=singlemessage&isappinstalled=0)<br>
+[江苏常州女婴出生3天被其父亲抱出院，以5万元卖出](http://sjycdn.miaopai.com/stream/HngoIYaNBYJB1-3mX-I9aCevRn-PBViQlg7cDQ___32.mp4?ssig=ecb8b76afe973b2683bd272e1d8858cd&time_stamp=1576218120937)<br>
 
 ### 4-6岁
 [广东茂名多名幼童遭外派体能老师猥亵](https://weibo.com/tv/v/IgWcP70H5?fid=1034:4440364853986991)<br>
@@ -24,10 +25,13 @@
 [湖南某卫生院副院长涉嫌多次对13岁女生实施强奸](http://www.sohu.com/a/327928351_260616)<br>
 [四川63岁男子强奸14岁残疾少女](https://www.guancha.cn/politics/2019_10_28_523008.shtml)<br>
 [合肥14岁女生被网恋大学生男友捅20余刀死亡](https://zx.sina.cn/2019-11-25/zx-iihnzhfz1461399.d.html?wm=3049_0018)<br>
+[贵阳一男子公交车上猥亵14岁女生,女生锁喉猥琐男](https://weibo.com/tv/v/Igbx4momd?fid=1034:4438575123505317)<br>
 [温州14岁女生看了一眼少年纹身，被打耳膜穿孔流血](https://weibo.com/tv/v/HAHTlAQBT?fid=1034:4387484902085991)<br>
 [山东初三女孩在家中被父亲杀害，母亲亦被家暴16年](http://n.miaopai.com/media/DAAVgnWNvMJ4J7qOlY7ymNahdbOv2QH~)<br>
 [深圳15岁少女拒绝男子求爱遭毁容](https://baijiahao.baidu.com/s?id=1632868571879333887&wfr=spider&for=pc)<br>
 [16岁少女在昌平新东方外国语学校601教室遭17岁的王祎哲强奸并勒死](https://baijiahao.baidu.com/s?id=1597462605925601496&wfr=spider&for=pc)<br>
+[]()<br>
+[男子侵害女孩潜逃35年 为赎罪救了许多落水者](https://zx.sina.cn/2019-11-25/zx-iihnzahi3115086.d.html?wm=3049_0018)<br>
 [湖南16岁少女被50岁单身男囚禁地洞性侵24天](http://m.haiwainet.cn/middle/3541353/2016/0908/content_30305627_1.html)<br>
 
 ### 18岁以上
@@ -45,6 +49,7 @@
 [湖南祁东县疑多人强奸未成年女孩 两公职人员涉案](http://www.sohu.com/a/354532305_260616)<br>
 [河南“女大学生遭性侵毁尸案”](http://www.bjnews.com.cn/news/2019/08/23/618720.html)<br>
 [武汉一花季女大学生被性侵 作案者竟是闺蜜男友](https://hb.qq.com/a/20171122/007253.htm)<br>
+[广东东莞女子路边打电话,赤膊长发男路过突然挥拳 一拳将其打进屋内](http://n.miaopai.com/media/9eEFglnz8QJG-G9Hj1gyuOtuKVW0rHjC)<br>
 
 ### 甜甜的恋爱轮到你了
 [合肥女钢琴师被相亲对象杀害](http://www.sohu.com/a/304549647_120067027)<br>
@@ -180,7 +185,7 @@
 [汕头一男子挟持妻子做人质欲跳楼被警方击毙](https://baijiahao.baidu.com/s?id=1619557794639582849&wfr=spider&for=pc)<br>
 [砍妻头部超30刀 山西晋城兰亭书院案凶手被判死刑](https://baijiahao.baidu.com/s?id=1635947033411473401&wfr=spider&for=pc)<br>
 [男子因被妻子屏蔽朋友圈,持刀挟持妻子砍伤侄女](http://n.miaopai.com/media/fsAsun8G2~xo19nCF1XMAwT13HofI7OG)<br>
-[离婚次日男子砍前妻后自首](http://n.miaopai.com/media/tbjxt349s2-eSa2ui5cvPiHIGXO266yb)<br>
+[四川遂宁男子郑某离婚次日砍前妻后自首](http://n.miaopai.com/media/tbjxt349s2-eSa2ui5cvPiHIGXO266yb)<br>
 
 ```
 我又没杀别人 我杀的是我亲妈
@@ -207,7 +212,7 @@
 2018年10月，[安徽男子厕所偷拍，行政拘留10日](http://ah.ifeng.com/a/20191127/7888026_0.shtml)<br>
 2019年5月，[北京小米副总裁猥亵，行政拘留5日](http://www.sohu.com/a/316656109_166914)<br>
 2019年6月，[四川男子地铁偷拍，行政处罚7日，罚款500](https://news.china.com/socialgd/10000169/20190530/36295437.html)<br>
-
+[无后续-上海女子做完私处美容 却发现正前方就是监控探头](http://n.miaopai.com/media/q7FCtODrj9xvw802UC~mp8DPc~K4ZM9Z)<br>
 
 ## 结语 
 
